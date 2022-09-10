@@ -19,6 +19,9 @@ pip install discord   idk which one
 custom amount of bombs
 ### join dah server
 https://discord.gg/jpd
+
+[join mine too ;)]
+https://discord.gg/guessing
 ## completely random mines predictor bot DO NOT SELL IT.
 #### if u repost or distribute with no credits im prob gonna take down.
 (credit to geek#7216)
