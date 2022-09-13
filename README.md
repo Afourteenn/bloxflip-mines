@@ -25,3 +25,6 @@ https://discord.gg/guessing
 ## completely random mines predictor bot DO NOT SELL IT.
 #### if u repost or distribute with no credits im prob gonna take down.
 (credit to geek#7216)
+
+
+## SELL THIS SHIT AND WE WILL DMCA YOU
